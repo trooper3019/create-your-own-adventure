@@ -1,0 +1,1 @@
+One of the greatest of human passions is the lust for power. So satisfying it is to bask in the affirmation of one's knowledge. Passion. 
